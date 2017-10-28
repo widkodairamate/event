@@ -23,8 +23,6 @@ Coming Soon...
 
 ## Important
 
-#### 所祭（実行委員）
-
 #### aka Wa.Se.Da.
 時間：
 - 11/04 12:30 - 13:00
