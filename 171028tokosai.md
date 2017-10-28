@@ -1,6 +1,11 @@
 # 早稲田大学所沢キャンパス祭2017
 2017/10/29
 
+<p><img alt="original" src="/figure/tokosai17logo.jpg"
+style="display:block;margin-left:auto;margin-right:auto;"
+width="200px" />
+</p>
+
 ## Access
 URL参照：
 http://tokosai.net/for_guests/
