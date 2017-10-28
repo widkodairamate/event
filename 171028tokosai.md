@@ -60,7 +60,7 @@ http://tokosai.net/%E3%82%BF%E3%82%A4%E3%83%A0%E3%83%86%E3%83%BC%E3%83%96%E3%83%
 
 ## SNS
 - Tokosai Official Twitter:  https://twitter.com/tokosai_waseda?lang=en
-- aka Wa.Se.Da. Official Twitter: https://twitter.com/akawaseda
+- aka Wa.Se.Da. Official Twitter: https://twitter.com/akaWaSeDa1?s=06
 
 
 ## Press
