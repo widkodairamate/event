@@ -1,4 +1,4 @@
-# 早稲田大学所沢キャンパス祭2017
+# 早稲田祭2017
 2017/11/04-05
 
 <p><img alt="original" src="/figure/wasesai17logo.png"
