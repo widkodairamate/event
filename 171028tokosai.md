@@ -27,7 +27,7 @@ http://tokosai.net/%E3%82%BF%E3%82%A4%E3%83%A0%E3%83%86%E3%83%BC%E3%83%96%E3%83%
 
 一言：来てくれたら嬉しおす（来い）
 
-#### aka Wa. Se. Da.
+#### aka Wa.Se.Da.
 時間：11:45 - 12:40
 
 場所：メインステージ
@@ -52,3 +52,12 @@ http://tokosai.net/%E3%82%BF%E3%82%A4%E3%83%A0%E3%83%86%E3%83%BC%E3%83%96%E3%83%
 - 310 進藤（シフト制）
 
 一言：不明なとこはわかり次第連絡します！
+
+## SNS
+- Tokosai Official Twitter:  https://twitter.com/tokosai_waseda?lang=en
+- aka Wa.Se.Da. Official Twitter: https://twitter.com/akawaseda
+
+
+## Press
+- Waseda Weekly:
+https://www.waseda.jp/inst/weekly/feature/2017/10/23/35513/
