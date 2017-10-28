@@ -23,7 +23,7 @@ Coming Soon...
 
 ## Important
 
-#### **aka Wa.Se.Da.**
+### aka Wa.Se.Da.
 時間：
 - 11/04 12:30 - 13:00
 - 11/05 13:50 - 14:30
