@@ -19,7 +19,7 @@ https://www.waseda.jp/top/assets/uploads/2016/10/20161020toyama_campus_map.pdf
 
 ## Time Table
 URL参照：
-Coming Soon...
+http://www.wasedasai.net/2017/tt/4th.php
 
 ## Important
 
@@ -85,6 +85,28 @@ Coming Soon...
 出演：413 野田（シフト制）
 
 一言：サークル員の書いた小説を文庫本として販売します。僕の小説も掲載しているんで是非読んで下さい。飲み物も用意しているので休憩所としてもどうぞ。
+
+### 団体名不明
+時間：11/04, 午後
+
+場所：Coming Soon
+
+内容：離島交流 Project
+
+出演：503 月東
+
+### Brilliant Pinks
+時間：
+- 11/04 10:00 - 10:35
+- 11/05 12:30 - 13:00
+
+場所：
+- 戸山カフェテリアステージ
+- **大隈講堂前ステージ**
+
+内容：ダンスパフォーマンス
+
+出演：317 新酒
 
 ## SNS
 - Wasedasai Official Twitter:  https://twitter.com/wasedasai?lang=ja
